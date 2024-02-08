@@ -1,1 +1,2 @@
 # crazykomal
+ALWAYS CRAZY
